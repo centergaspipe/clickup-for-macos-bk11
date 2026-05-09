@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with best Utility for ClickUp for macOS - auto-sync and goal tracking, the #1 utility. Includes auto-sync and goal tracking for a smoother experience.
 
 
 
